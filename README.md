@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="1097706363455493227" data-share-method="host" data-aspect-ratio="1.19712" data-width="100%"><a href="https://tenor.com/view/dergadation-gif-1097706363455493227">Dergadation GIF</a>from <a href="https://tenor.com/search/dergadation-gifs">Dergadation GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img src="smth.jpg" alt="Нет картинки (((">
