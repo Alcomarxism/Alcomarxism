@@ -1,1 +1,1 @@
-<img src="lenin-vladimir-lenin.gif" alt="Нет картинки (((">
+<img src="animation.gif" alt="Нет картинки (((">
