@@ -1,1 +1,1 @@
-<img src="dergadation.gif" alt="Нет картинки (((">
+<img src="disco-elysium-detective.gif" alt="Нет картинки (((">
