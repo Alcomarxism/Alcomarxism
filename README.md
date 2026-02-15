@@ -1,1 +1,1 @@
-<img src="disco-elysium-detective.gif" alt="Нет картинки (((">
+<img src="lenin-vladimir-lenin.gif" alt="Нет картинки (((">
