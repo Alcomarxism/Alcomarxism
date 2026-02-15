@@ -1,1 +1,1 @@
-<img src="smth.jpg" alt="Нет картинки (((">
+<img src="dergadation.gif" alt="Нет картинки (((">
